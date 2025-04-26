@@ -1,1 +1,1 @@
-# Notas-de-ecuaciones-diferenciales-p--dicas
+# Notas-de-ecuaciones-diferenciales-p-ádicas
